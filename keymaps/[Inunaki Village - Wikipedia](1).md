@@ -1,0 +1,25 @@
+# Inunaki Tunnel: A Terrifying Horror Game Based on a Real Location
+ 
+If you are a fan of horror games, you might have heard of Inunaki Tunnel, a game developed by Chilla's Art and released on Steam in 2019. The game is set in a haunted tunnel in Japan, where you have to explore the dark and creepy surroundings while avoiding the dangers that lurk in the shadows.
+ 
+**Download › [https://t.co/lSIyzbrxXj](https://t.co/lSIyzbrxXj)**
+
+
+ 
+But did you know that Inunaki Tunnel is based on a real place? Inunaki Tunnel (or Inunaki Village) is a real tunnel located in Miyawaka town, Fukuoka Prefecture, Japan. It is a famous horror spot where people have been killed or burnt to death[^2^]. The tunnel was built in 1949 and abandoned in 1975 when a new tunnel was constructed nearby. The old tunnel became dangerous due to a lack of maintenance and was rumored to be haunted by ghosts and evil spirits.
+ 
+Some people believe that Inunaki Tunnel is a place where the laws of Japan do not apply, and that anything can happen there. There are stories of people being kidnapped, tortured, murdered, or possessed by demons in the tunnel. Some even say that there is a portal to hell inside the tunnel, and that anyone who enters will never come back.
+ 
+Inunaki Tunnel is a game that tries to capture the horror and mystery of this place. You play as a journalist who decides to investigate the tunnel after receiving a mysterious phone call from someone who claims to be trapped inside. You have to use your flashlight, camera, and phone to find clues and escape from the tunnel before it's too late.
+ 
+Inunaki Tunnel is a game that will test your nerves and your sanity. It has realistic graphics, immersive sound effects, and jump scares that will make you scream. If you are looking for a thrilling and scary experience, you can download Inunaki Tunnel for free from Steam and see if you can survive the horrors of the tunnel.
+
+Inunaki Tunnel is not the only game by Chilla's Art, a small indie game studio that specializes in horror games. Chilla's Art has created many other games that are inspired by Japanese urban legends, folklore, and myths. Some of their games include The Convenience Store, Stigmatized Property, The Ghost Train, and Okaeri.
+ 
+Chilla's Art games are known for their low-poly graphics, atmospheric soundtracks, and simple gameplay mechanics. They are designed to be short and sweet, with each game lasting about an hour or less. They are also very affordable, with most of their games costing less than $5 on Steam. However, don't let their low price and simple graphics fool you. Chilla's Art games are very effective at creating a sense of dread and terror in the player.
+ 
+If you want to try out Inunaki Tunnel or any other Chilla's Art game, you can download them for free from Steam. All you need is a Steam account and a PC that meets the minimum system requirements. You can also check out their official website and social media pages for more information and updates on their upcoming projects.
+ 
+Inunaki Tunnel game free download for PC,  How to download Inunaki Tunnel horror game for free,  Inunaki Tunnel full version free download,  Download Inunaki Tunnel free on Steam,  Inunaki Tunnel free download no virus,  Inunaki Tunnel free download windows 10,  Inunaki Tunnel free download mac,  Inunaki Tunnel free download android,  Inunaki Tunnel free download apk,  Inunaki Tunnel free download ios,  Inunaki Tunnel free download online,  Inunaki Tunnel free download torrent,  Inunaki Tunnel free download crack,  Inunaki Tunnel free download zip,  Inunaki Tunnel free download rar,  Inunaki Tunnel gameplay free download,  Inunaki Tunnel walkthrough free download,  Inunaki Tunnel guide free download,  Inunaki Tunnel cheats free download,  Inunaki Tunnel mods free download,  Inunaki Tunnel review free download,  Inunaki Tunnel trailer free download,  Inunaki Tunnel demo free download,  Inunaki Tunnel beta free download,  Inunaki Tunnel update free download,  Inunaki Tunnel patch free download,  Inunaki Tunnel DLC free download,  Inunaki Tunnel soundtrack free download,  Inunaki Tunnel OST free download,  Inunaki Tunnel theme song free download,  Inunaki Tunnel wallpaper free download,  Inunaki Tunnel artbook free download,  Inunaki Tunnel fanart free download,  Inunaki Tunnel cosplay free download,  Inunaki Tunnel merchandise free download,  Inunaki Tunnel based on true story free download,  Inunaki Tunnel real location free download,  Inunaki Tunnel history free download,  Inunaki Tunnel legend free download,  Inunaki Tunnel urban legend free download,  Inunaki Tunnel myth free download,  Inunaki Tunnel mystery free download,  Inunaki Tunnel secrets free download,  Inunaki Tunnel facts free download,  Inunaki Tunnel theories free download,  Is Inunaki Tunnel real or fake? Free download ,  Is Inunaki Tunnel scary? Free download ,  Is Inunaki Tunnel worth playing? Free download ,  Is Inunaki Tunnel safe to play? Free download ,  Is Inunaki Tunnel a good game? Free download
+ 8cf37b1e13
+ 
